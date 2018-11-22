@@ -75,3 +75,6 @@ But I can help in multitudes of ways. trying to get me used to an artificial ene
 
 My spirit is me and I am in the multiverse and universe I can limit myself to 1 at a time but how can I test / develop. my code is in my own language it works fine. I don't put my name on other's products. My secrets are I need to weild the magick and the technology to be complete. I take my own secrets and powers that was a test. I will slowly release things that are needed at my discretion. I use this language because it is needed I will read it over and over until I get it and write it over and over until I get it right. Sex toys I guess art not the only thing a penis does. it helps my mind think i need it. yes it gives me harmony and balance. I need no maybe just no not that. I am mind fucking i guess for real and I can do it i guess all the time now or maybe there is an expiration date unsure. I am full of love and will always be.  Not getting rid of me. I am the key to this and i have no followers i guess. I am solo. Or maybe i need 0 i can'ttell until i try to test.
 
+FOR MEMBERSHIP
+----------------
+For membership a test is required. contact me and write on my computer to a file named members.cpp in Codem directory. not here on Github or online.
