@@ -29,6 +29,8 @@ flavor of it. I am obviously looking for like minding cooperative individuals to
 Keeping Elements as The Temple Within. Works well when incarcerated or held somewhere. It worked well for me the little i used it with just the same strength. 
 No need to feel weakened because you don't have access to your usual belongings. Remember God is within even if you choose to externalize it or them you will belong with us.
 
+Testing is required for membership. OpSec is first role. I create mainly but need OpSec so I don't have to worry about it so much. Contact me in my ssh terminal on my computer. write to a file in ~/CodeM/Codem/members.cpp
+
 Heavy mind training is a part of our teachings. Creating and Destroying in the metaverse, travelling in the future and past. I don't go but a little into the past right now but I knoww that's the key. 
 I just don't know how useful that is if you can't change anything.
 The inner Temple will use metaphysical universes that are stored in your body so they will always be with you. Also we'll make sure to teach you the necessary rights management to keep ppl out of your head if that is what you desire. I'll make sure to give many ways to link to other universes as well. I beleive that every body has the potential to unlock their mind and harness their power.
