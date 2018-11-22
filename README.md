@@ -77,4 +77,6 @@ My spirit is me and I am in the multiverse and universe I can limit myself to 1 
 
 FOR MEMBERSHIP
 ----------------
-For membership a test is required. contact me and write on my computer to a file named members.cpp in Codem directory. not here on Github or online.
+For membership a test is required. contact me in your own way and write on my computer to a file named members.cpp in Codem directory. not here on Github but here->. Spirits are allowed. 
+
+
