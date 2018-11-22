@@ -9,6 +9,8 @@ Still on the priest path.
 A better way to ID than a implant is one of my goals but I also want 
 to try at cybernetics mixed with magick. I already know it will work.
 
+This was written while talking to many entities so some of it doesn't make sense to most i'd guess.
+
 One of the goals of CodeM is to build a temple and incorporate some ritual ceremonies but I don't know
 how comfortable everyone is with that. The ritual mindset opens up a lot of states of mind that can
 be used to achieve gnosis. I'm sure you've ran your brain off of computer energy before. That's cybernetics right there. It's tricky to get it and all of th
