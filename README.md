@@ -2,8 +2,9 @@ Ideas owned by Tim Kayser if one can own ideas.
 Technological and Mystical Path I am founding.
 
    The Foundations of CodeM
-Technological and Mystical Path
+Technological and Mystical Path of Creation / Development
 --------------------------------
+
 
 Still on the priest path.
 A better way to ID than a implant is one of my goals but I also want 
